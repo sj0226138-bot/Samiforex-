@@ -1,0 +1,1 @@
+samiforex text 
